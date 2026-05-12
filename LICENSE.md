@@ -1,4 +1,4 @@
-# 
+# ultimate Gimp for macOS Brush Pack | gradient maps + version history offers the most advanced Gimp for macOS brush, with gradient maps and version history. Ideal for professional
 
 
 
